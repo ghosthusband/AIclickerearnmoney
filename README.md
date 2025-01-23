@@ -1,6 +1,5 @@
 # AIclickerearnmoney
-再简单不过的AI脚本赚钱方法 https://serpclix.com/users/referrals/BONOQ38S9SB0TVGYZ16DUX2RV 
-
+再简单不过的AI脚本赚钱方法 
 这个网站点进去注册登陆完成任务就能直接获得0.5 - 0.10美分 每个任务完成时间最多不超过一分钟。
 
 注意这个网站本身只适用于本身就不在国内或者有稳定的外网ip的人，请不要使用vpn。也不要多开账户，请看好网站规则再进行。
